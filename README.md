@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **prantanathnayan@gmail.com**
 
-- ⚡ Fun fact **I am funnnyy😊**
+- ⚡ Fun fact **NO fun i am damn serious😒**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
